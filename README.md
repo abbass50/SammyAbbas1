@@ -6,7 +6,7 @@
 - 📫 How to reach me:
      - LinkedIn: www.linkedin.com/in/sammyabbas
      - School Email: abbass50@mcmaster.ca
-     - Personal Email: sammy_abbas@yahoo.com
+     - Personal Email: sammy.abbas728@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡  Fun Fact: I’m a big movie buff and enjoy relaxing with a good film. Here are some that I think everyone should see at least once:
      - Good Will Hunting
